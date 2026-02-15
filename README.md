@@ -1,4 +1,4 @@
 ART : N/A
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![.](https://i.postimg.cc/43zb0Wt0/nahida.webp)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤㅤ[RENTRY](https://rentry.co/karl_lot)ㅤ ⋆ ㅤ[ATABOOK](https://karlsviolin.atabook.org/)ㅤ ⋆ ㅤ[DIRECTORY](https://pronouns.cc/@PRINCESSALICE)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ⠀⠀⠀⠀ㅤㅤ[RENTRY](https://rentry.co/karl_lot)ㅤ ⋆ ㅤ[ATABOOK](https://karlsviolin.atabook.org/)ㅤ ⋆ ㅤ[DIRECTORY]()
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
